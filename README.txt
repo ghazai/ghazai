@@ -1,0 +1,1 @@
+Copyright www.galotaibi.co.uk/game
